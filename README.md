@@ -1,2 +1,1 @@
-# Cautions-breed-Cautions
-Observations from Nascar
+My God,.......is this the Read me file?   ......It appears so.  Then if you want to know what is on my mind,........then read the first part of what is probably my public repository.   If this is the read me, I will have to add some more here if I every find out what it is that we are trying to attain here.  For that matter...........PLAN B..............
